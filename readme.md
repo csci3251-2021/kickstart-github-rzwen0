@@ -6,3 +6,4 @@ HELLO Everyone, welcome to may profile, thanks for your attention.
  And my hateset is all UG course(just course, I like teachers indeed), and I don't like totally math course.
  In live I will paly some video game if I am free. May be I will buy a PS6 when I can earn money by myself.
  All in all it is just a brief profile, just let you know something of me. That's me, a common university student.
+ For now I am just a Year 2 student and looking for summer research job.
